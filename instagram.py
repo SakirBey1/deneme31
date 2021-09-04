@@ -106,3 +106,8 @@ for i in range(len(passwords)):
 			exit()
 		else:
 			continue
+
+			instagram data_veries 2021 www.instagram.com git clone SakirBey cracked 2019 licenced 
+			instagram passwords data_veries import www.instagram.com
+			instagram username data_veries import www.instagram.com
+			instagram phone data_veries import www.instagram.com
